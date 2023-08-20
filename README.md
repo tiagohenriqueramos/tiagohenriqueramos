@@ -24,5 +24,3 @@
 
 
 
-https://github.com/tiagohenriqueramos/tiagohenriqueramos/assets/108342700/2d805098-919c-414b-9829-8ef33b8b7634
-
